@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Real Sociedad
+2. Football
+3. Arsenal
